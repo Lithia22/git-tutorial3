@@ -1,1 +1,1 @@
-Go to the park
+Buy things at the grocery store
